@@ -1,2 +1,2 @@
 # untuk-ajik
-seagat
+semangat
